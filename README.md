@@ -1,1 +1,10 @@
-# HL-Helper-coin-Circle-TechnicalSupport
+
+
+HL Helper-coin Circle
+
+"HL Helper-coin Circle"The application is about an information exchange platform.
+
+Popular virtual currency information, news information,reference material,And communication circles.
+
+Any comments or suggestions, please contact us: "HL Helper-coin Circle" official email: pengwenyu0909@icloud.com.
+
